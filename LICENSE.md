@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Krita for PC | Krita for Windows extension with smart Krita for PC | Krita for Windows Extension | liquify-tool + content-aware-fill. Featuring liquify-tool and
 
 
 
